@@ -1,4 +1,4 @@
-# MODO DE PREPARO VAI TOMANDO 
+# MODO DE PREPARO VAI TOMANDO !!! AIIII 
 1.
 Em uma panela, adicione o tucupi, o alho, a chicória e a pimenta de cheiro. Tempere com o sal e leve ao fogo. Assim que levantar fervura, abaixe o fogo, tampe a panela e deixe cozinhar por 30 minutos.
 2.
